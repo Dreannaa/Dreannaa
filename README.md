@@ -2,7 +2,7 @@
 - 👀 I’m interested in.cool guy like au story, I like being famous 
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on .love story.
-- 📫 How to reach me ..gentle, possessive, obsessed, jealous, follows what I want, can't resist my wishes, crazy about me.
+- 📫 How to reach me telegram
 
 <!---
 Dreannaa/Dreannaa is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
